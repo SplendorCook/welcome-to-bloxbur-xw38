@@ -1,4 +1,4 @@
-#  
+#  secure king legacy Scripts offers the most advanced king legacy Script, with aimbot and infinite resources. Perfect for dominating any match.
 
 
 
